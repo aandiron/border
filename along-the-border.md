@@ -1,5 +1,5 @@
 along-the-border.md
-Last modified: Sun Feb 20, 2022  01:05PM
+Last modified: Tue Feb 22, 2022  12:59PM
 
 
 # Along The Border
@@ -11,7 +11,7 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---Yes. End of the farm road, walk left along the fence to the place where the dry stream bed crosses. It wasn't difficult.
 
----I put our chances of this working to be 50/50 at best. Too many things could have gone wrong.
+---I put our chances of this working to be 50-50 at best. Too many things could have gone wrong.
 
 ---But they didn't!
 
@@ -19,7 +19,7 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---I think of you every day. I wish this fence weren't between us.
 
----They can prevent us from crossing the line, but at least we can get right up to it.
+---They can prevent us from crossing the line, but at least we can move right up to it.
 
 ---Here...put your fingers through the fence so we can touch.
 
@@ -27,9 +27,9 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---Every night...that's what I think about... Your fingers are so rough...
 
----When I lay in bed at night, I imagine you next to me, my hand tracing the curve of your hip, taking your breast in my hand, pulling you up against me... so you can feel my cock pressing into you...
+---When I lay in bed at night, I imagine you next to me, my hand tracing the curve of your hip, taking your breast in my hand, pulling you up against me...so you can feel my cock pressing into you...
 
----Stop. I...can't. It's too much with you so close but unreachable.
+---Stop. I...can't. It's too much with you so close but so unreachable.
 
 ---This is all we have. Come up to the fence, let me touch your lips...those beautiful full lips of yours...don't smile! Though I love your smile...but kiss my fingertips instead.
 
@@ -39,23 +39,23 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---So close. But we're split apart by some huge force...so much bigger than we are.
 
----Remember it's just a fence.
+---Remember that it is just a fence.
 
 ---A fence is all that's required to destroy me...us.
 
 ---Don't talk like that...  ---They make you wear that long heavy skirt?
 
----Wool. It's far too much for this climate. At least the blouse is lighter.
+---Wool. It's far too much for this climate. At least the blouse is lighter, and cotton.
 
----And at least it still allows me to still appreciate the beauty of your breasts.
+---And at least it allows me to still appreciate the beauty of your breasts.
 
 ---I need you to touch my breasts...my tits. I need to know how much you appreciate them.
 
 ---Unbutton your blouse. Give me something to think about when I'm alone tonight... Not too fast, one button at a time...let them spill out.
 
----This sunlight and little breeze feels good on my nipples... It also feels good to see that lust in your eyes.
+---This sunlight and little breeze feels good on my nipples... ---It also feels good to see that lust in your eyes.
 
----It's funny, intellectually I know how perfect your tits are. I can recall them to my mind's eye at night, you know? But when I see them I can _feel_ their perfection.... the precise parallel curves, the big handfulness of them, the hard little buttons of your nipples, circled. I almost know what it's like to feel them round in my hands; your nipples pressing into my palms...the visual memory never does them justice. As much as I love to picture them, it makes me sad to do so.
+---It's funny, intellectually I know how perfect your tits are. I can recall them to my mind's eye at night, you know? But when I see them I can *feel* their perfection.... the precise parallel curves, the big handfulness of them, the hard little circled buttons of your nipples. I almost know what it's like to feel them round in my hands; your nipples pressing into my palms...the visual memory never does them justice. As much as I love to picture them, it also makes me sad when I do.
 
 ---These tits are for you... I need your hands on them.
 
@@ -77,13 +77,13 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---This damned zipper...these are the shittily-made trousers they give us... ---See here? I'm throbbing with desire for you... ---What are you laughing about?
 
----Look at your shadow...it has a spine sticking out from it.
+---Look at your shadow...it has a spine sticking out from the middle of it.
 
 ---It does look ridiculous... I... I was hoping maybe your attention would be on something else...
 
 ---It is, it is! See how wide my eyes are? Stroke it...let me see your hand travel up and down that thing...give me my own image to hold on to...a way to imagine my pussy where your hand is.
 
----My hand is nothing compared to your pussy.
+---My hand is a dry stalk compared to your pussy.
 
 ---But at least I can see how much you want it. ---Unbutton your shirt. I want to see more of your body. ---They keep you in shape, huh?
 
@@ -99,13 +99,13 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---Oh I'm sorry. Don't look so sad!
 
----I told you, I am upset!
+---I told you: I am upset!
 
 ---This is all we have right now. Make it a good memory.
 
 ---You're right...but still, no jokes, OK?
 
----Is this a joke? Look at how wet you made me. Look at my fingers?
+---Is this a joke? Look at how wet you made me. Look at my fingers!
 
 ---Let me taste them through the fence. Your fingers will fit at least...
 
@@ -117,7 +117,7 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---I can see how wet you are from here...your sloppy fingers! ---Hike your skirt up...bend over. I want to see what you look like...if only I were that little distance closer to you...if only I could be fucking you from behind right now.
 
----Like this? You see my cunt? You see how soaked I am for you right now? It's right here for you... I want you to take me! ---I want you thrust up inside me...your hands on my hips...my tits...pulling me back against you...I want to break apart on you.
+---Like this? You see my cunt? You see how soaked I am for you out here in the open air? It's right here for you... I want you to take me! ---I want you thrust up inside me...your hands on my hips...my tits...pulling me back against you...I want to break apart on you.
 
 ---The curve of your ass...it's...it's just so fucking perfect...and right...fucking...there. ---I need to split you open...my...lovely...lady. ---Look back at me... I want to see you... ---Your eyes...so big and brown and beautiful...god you fucking look at me with that desire... ---But this goddamned fence! How is it possible we can we be so close and so fucking far apart at the same time?
 
@@ -125,16 +125,15 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---Touch your pussy! ---I want you to orgasm when you feel my hot cum touch you... Yes, like that! ---Your breast...your belly...my cock is so...your pretty face...
 
----Yes! ---Oh my god...it's so...I can't even... ---All over my lips...my chin...my tits...it's so warm... I can feel it carving its way down my breast.
-
+---Yes! ---Oh my god...it's so...I can't even... ---All over my lips...my chin...my tits...it's so warm... I can feel it tracing a burning path down my breast.
 
 ---It's dripping from your nipple.
 
----I came so hard...just when your cum laid its burning finger on me...at least this damned fence cannot stand between me and your cum.
+---I came so hard...just when your cum laid its scorching finger on me...at least this damned fence cannot stand between me and your cum.
 
----Such an anointing I give to you...it's everything I can give you.
+---Such an anointing I give to you...it's everything and the only thing I can give you.
 
----It's more than just jizz though...it's the only thing that can bridge the gap between us! ---Quite the graceful arc, too.
+---It's more than just jizz though...it's what bridges the gap between us! ---Quite the graceful arc, too.
 
 ---Now you're joking again.
 
@@ -142,11 +141,11 @@ Last modified: Sun Feb 20, 2022  01:05PM
 
 ---When will I see you again?
 
----I...I don't know. There's a rumor they might move us to another camp... ---Oh my god, don't look so sad. At least you'll have this to remember.
+---I...I don't know. There's a rumor they might move us to another camp... ---Oh, don't look so sad. At least you...we will have this to remember.
 
 ---But the gap between us will become much bigger...more space...probably more time.
 
----There's a gap between most people. That's why it's important to have these moments...these rendezvous...quick as they are...they are the only time the gaps even come close to closing... ---At least we can remember these small times.
+---There's a gap between most people. In some ways these moments...these rendezvous...quick as they are...they are the only time the gaps even come close to closing... And that might be true for everyone in some ways, not just us. ---At least we can remember these small times.
 
 ---Don't think I will ever forget...
 
