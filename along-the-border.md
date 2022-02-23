@@ -1,17 +1,17 @@
 along-the-border.md
-Last modified: Tue Feb 22, 2022  12:59PM
+Last modified: Wed Feb 23, 2022  01:00PM
 
 
 # Along The Border
 
 
----I got your note... I was so happy, I thought I might never see you again.
+---I got your note... I was so happy; I thought I might never see you again.
 
 ---You found the place alright?
 
----Yes. End of the farm road, walk left along the fence to the place where the dry stream bed crosses. It wasn't difficult.
+---Yes. End of the farm road, walk south along the fence to the place where the dry stream bed crosses. It wasn't difficult.
 
----I put our chances of this working to be 50-50 at best. Too many things could have gone wrong.
+---I made our chances of this working to be 50-50 at best. Too many things could have gone wrong.
 
 ---But they didn't!
 
@@ -19,13 +19,13 @@ Last modified: Tue Feb 22, 2022  12:59PM
 
 ---I think of you every day. I wish this fence weren't between us.
 
----They can prevent us from crossing the line, but at least we can move right up to it.
+---They prevent us from crossing the line, but at least we are able to step right up to it.
 
 ---Here...put your fingers through the fence so we can touch.
 
 ---I want to touch so much more than your fingers...
 
----Every night...that's what I think about... Your fingers are so rough...
+---Every night...that's what I think about... ---Your fingers are so rough...
 
 ---When I lay in bed at night, I imagine you next to me, my hand tracing the curve of your hip, taking your breast in my hand, pulling you up against me...so you can feel my cock pressing into you...
 
@@ -41,7 +41,7 @@ Last modified: Tue Feb 22, 2022  12:59PM
 
 ---Remember that it is just a fence.
 
----A fence is all that's required to destroy me...us.
+---A fence is all that's required to ruin me...us.
 
 ---Don't talk like that...  ---They make you wear that long heavy skirt?
 
@@ -65,7 +65,7 @@ Last modified: Tue Feb 22, 2022  12:59PM
 
 ---Tips of fingers triggering tiny buttons...it's not nearly enough.
 
----Move a hand further down... if I lift this damned skirt, and I come right up against the fence... is that better?
+---Move your hand further down... if I lift this damned skirt, and I come right up against the fence... ---Is that better?
 
 ---You're so wet... ---I like seeing you pressed up against the fence, with your fingers curled through the links... I wish I were on that side pushing you up against the fence.
 
@@ -83,7 +83,7 @@ Last modified: Tue Feb 22, 2022  12:59PM
 
 ---It is, it is! See how wide my eyes are? Stroke it...let me see your hand travel up and down that thing...give me my own image to hold on to...a way to imagine my pussy where your hand is.
 
----My hand is a dry stalk compared to your pussy.
+---My hand is a dry stalk, nothing compared to your pussy.
 
 ---But at least I can see how much you want it. ---Unbutton your shirt. I want to see more of your body. ---They keep you in shape, huh?
 
@@ -133,7 +133,7 @@ Last modified: Tue Feb 22, 2022  12:59PM
 
 ---Such an anointing I give to you...it's everything and the only thing I can give you.
 
----It's more than just jizz though...it's what bridges the gap between us! ---Quite the graceful arc, too.
+---It's more than just jizz though...it's what bridges the gap between us! ---Quite the graceful arch, too.
 
 ---Now you're joking again.
 
