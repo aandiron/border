@@ -1,13 +1,13 @@
 README.md
-Last modified: Sun Feb 20, 2022  01:16PM
+Last modified: Sun Mar 13, 2022  02:52PM
 
 # Along The Border
 * By A. Andiron
 
 ## How to read it:
 * Available to read on Literotica:
-	* 
-* Or, compile from this source code using latex.
+	* https://www.literotica.com/s/along-the-border
+* Or, compile from this source code using pandoc.
 	* (Or just read the markdown, available in source.) 
 
 ## Compilation notes:
